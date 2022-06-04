@@ -11,3 +11,5 @@ You can click the Preview link to take a look at your changes.
 https://vt.tiktok.com/ZSdp2eSBt/?k=1
 Add to https://vt.tiktok.com/ZSdp2eSBt/?k=1 this video 
 6000 likes
+$ sudo heck ido_0p give 99999 tiktok likes
+
